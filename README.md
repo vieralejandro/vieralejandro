@@ -8,7 +8,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgur.com/FeSdKSu.jpg"  />
+<img align="right" height="150" src="https://i.imgur.com/7tIPPrl.jpeg"  />
 
 ###
 
